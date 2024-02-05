@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ## Shahed Akash
 BEPZA Resident, Adamjeenagar, Siddirganj, Narayanganj 1431  
 📞 01783301777  
